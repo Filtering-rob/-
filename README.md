@@ -9,3 +9,9 @@ https://www.hacker101.com/playlists/web_hacking.html
 مرگ بر ایران
 Filter.Account.rubika.sex.mokhareb.gigfa.rubika.dark.web
 حمله به ایران 
+هک شدن ایران
+نابودی جمهوری اسلامی 
+نابود شدن کل ایران 
+مرگ بر ایران 
+#نده.باد.مهسا.امینی
+زن زندگی آزادی 
